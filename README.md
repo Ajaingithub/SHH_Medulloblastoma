@@ -15,3 +15,9 @@ Transcriptomic, Regulating, and Spatial difference between the primary and recur
 
 ![Screenshot 2024-11-03 at 1 15 20 PM](https://github.com/user-attachments/assets/a4a71143-c103-49d9-92aa-699371a07507)
 
+
+### Genotype
+
+![Screenshot 2024-11-03 at 1 17 13 PM](https://github.com/user-attachments/assets/41fe0614-d5f2-48c7-bb07-3bbaaddb57dd)  ![Screenshot 2024-11-03 at 1 18 52 PM](https://github.com/user-attachments/assets/9fc16478-5635-418e-9ede-2c881ff264b2)
+![Screenshot 2024-11-03 at 1 18 33 PM](https://github.com/user-attachments/assets/8115bd75-6bdf-4ddc-b5c3-67cd1b74991f)
+
